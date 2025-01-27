@@ -2,7 +2,7 @@
 - 👀 I’m interested in cloud computing & AI related technologies
 - 🌱 I’m currently learning Dev0ps 
 - 💞️ I’m looking to collaborate on cloud related stuff
-- 📫 How to reach me ... over mail
+- 📫 How to reach me ... akshayma071@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am jack of all & master of few
 
